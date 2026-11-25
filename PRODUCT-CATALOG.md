@@ -46,27 +46,32 @@ A handcrafted twig wreath with a tiny open book, delicate flowers, butterfly cha
 
 ### Naruto and Kurama
 A bold mini canvas featuring a striking split-face design with fiery orange tones and intense eyes.
-
+**Length:** 4 inches 
+**Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### Itachi eyes
 Inspired by the Itachi Uchiha’s style, highlighted through detailed strokes and bold contrasts.
-
+**Length:** 4 inches 
+**Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### Saiyan Spirit
 A striking anime portrait brought to life with fiery orange shades and electric blue details.
-
+**Length:** 4 inches 
+**Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### The Copy Ninja
 Featuring Kakashi's signature masked look and iconic eye.
-
+**Length:** 4 inches 
+**Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### Precious Bonds
 Inspired by *I Want to Eat Your Pancreas*, this painting captures the beauty of human connections and the memories we create with others.
-
+**Length:** 4 inches 
+**Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ## 3. Accessories
@@ -96,31 +101,43 @@ A handcrafted bridal chuda featuring vibrant silk threads, intricate mirror work
 ### Gojo with Quotes
 A hand-painted portrait of Gojo Satoru with memorable quotes.
 
+**Length:** 4 inches 
+**Width:** 2 inches 
 **Materials:** 360 gsm paper, Fevicryl paint, spray varnish.
 
 ### Gojo with Glasses
 A colourful portrait of Gojo Satoru in his signature blue shades. Playful, vibrant and full of character.
 
+**Length:** 4 inches 
+**Width:** 2 inches 
 **Materials:** 360 gsm paper, Fevicryl paint, spray varnish.
 
 ### Gojo Portrait
 A hand-painted illustration of Gojo Satoru with soft colours and detailed artwork.
 
+**Length:** 4 inches 
+**Width:** 2 inches 
 **Materials:** 360 gsm paper, Fevicryl paint, spray varnish.
 
 ### Gojo in Black
 Featuring Gojo Satoru in his classic black outfit with the words "Infinity Exists Everywhere."
 
+**Length:** 4 inches 
+**Width:** 2 inches 
 **Materials:** 360 gsm paper, Fevicryl paint, spray varnish.
 
 ### Giyu Tomioka – Water Hashira
 Inspired by Giyu Tomioka from *Demon Slayer*, this hand-painted bookmark captures his calm charm and iconic look.
 
+**Length:** 4 inches 
+**Width:** 2 inches 
 **Materials:** 360 gsm paper, Fevicryl paint, spray varnish.
 
 ### Minato Namikaze (The Yellow Flash)
 Inspired by Minato Namikaze from *Naruto*, this bookmark captures his iconic look and fearless spirit.
 
+**Length:** 4 inches 
+**Width:** 2 inches 
 **Materials:** 360 gsm paper, Fevicryl paint, spray varnish.
 
 ## 5. Miscellaneous
@@ -128,9 +145,13 @@ Inspired by Minato Namikaze from *Naruto*, this bookmark captures his iconic loo
 ### DIY Doll
 A handmade fabric doll featuring soft yarn hair, red bows, rosy cheeks and a red frock with a rose.
 
+**Length:** 4 inches 
+**Width:** 5 inches 
 **Materials:** Muslin, jute thread, red embroidery thread, red organza fabric, soft cotton, shredded fabric, soft pastel colour, miniature rose.
 
 ### Yellow muffler
 Handmade with soft, fluffy yarn, this yellow muffler is designed to keep you warm and cosy.
 
+**Length:** 1.5 metre 
+**Width:** 59 inches
 **Materials:** Squishy thick yellow wool yarn.
