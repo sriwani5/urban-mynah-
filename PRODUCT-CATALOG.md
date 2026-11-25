@@ -46,30 +46,35 @@ A handcrafted twig wreath with a tiny open book, delicate flowers, butterfly cha
 
 ### Naruto and Kurama
 A bold mini canvas featuring a striking split-face design with fiery orange tones and intense eyes.
+
 **Length:** 4 inches 
 **Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### Itachi eyes
 Inspired by the Itachi Uchiha’s style, highlighted through detailed strokes and bold contrasts.
+
 **Length:** 4 inches 
 **Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### Saiyan Spirit
 A striking anime portrait brought to life with fiery orange shades and electric blue details.
+
 **Length:** 4 inches 
 **Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### The Copy Ninja
 Featuring Kakashi's signature masked look and iconic eye.
+
 **Length:** 4 inches 
 **Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
 
 ### Precious Bonds
 Inspired by *I Want to Eat Your Pancreas*, this painting captures the beauty of human connections and the memories we create with others.
+
 **Length:** 4 inches 
 **Width:** 4 inches 
 **Materials:** Mini canvas, canvas stand, acrylic paint, varnish.
